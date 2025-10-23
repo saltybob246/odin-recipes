@@ -10,3 +10,7 @@ Flickr https://www.flickr.com/people/87296837@N00
 Soup Pic Thanks Nichijyou123: https://commons.wikimedia.org/w/index.php?title=User:Nichijyou123&action=edit&redlink=1
 
 Thank you ME for the bread recipe and Thank you to my grandmother for the chicken noodle soup recipes. I make both of these  at least once a week for my family.
+
+Thanks to Allrecipes.com on the video on how to knead bread and shape loafs. https://www.youtube.com/watch?v=ySOj0fFWo1U
+
+
