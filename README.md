@@ -9,5 +9,4 @@ Flickr https://www.flickr.com/people/87296837@N00
 
 Soup Pic Thanks Nichijyou123: https://commons.wikimedia.org/w/index.php?title=User:Nichijyou123&action=edit&redlink=1
 
-Thank you ME for the bread recipe and chicken noodle soup recipes. I make both of these  at least once a week for my family. I'm noticing cooking and coding are kinda the same XD
-
+Thank you ME for the bread recipe and Thank you to my grandmother for the chicken noodle soup recipes. I make both of these  at least once a week for my family.
